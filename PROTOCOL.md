@@ -1,0 +1,1 @@
+https://www.bestbuy.com/product/insignia-9-cu-ft-compact-countertop-microwave-stainless-steel/J2FPJKSGKP?utm_source=chatgpt.com
